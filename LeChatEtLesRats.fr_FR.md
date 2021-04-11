@@ -1,4 +1,4 @@
-LE CHAT ET # LES RATS
+# LE CHAT ET LES RATS
 
 Une maison était infestée de rats. Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait. 
 Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
