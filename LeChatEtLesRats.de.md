@@ -1,18 +1,18 @@
-# DIE KATZE UND DIE RATTEN
+# LE CHAT ET LES RATS
 
-Ein Haus war mit Ratten verseucht. 
+Une maison était infestée de rats. 
 
-Als eine Katze dies hörte, ging sie dorthin und fing sie, eine nach der anderen, und fraß sie.
+Als eine Katze dies hörte, ging sie dorthin und fing eine nach der anderen, und fraß sie.
 
-Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
+Aber nun versteckten sich die verbliebenen Ratten in ihren Löchern. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Da sie diese nicht mehr erreichen konnte, überlegte sich die Katze einen Trick, um sie herauszuholen. 
 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
+Sie kletterte auf einen Holzvorsprung und stellte sich tot. 
 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+Aber eine der Ratten steckte den Kopf heraus, um zu schauen, sah die Katze und sagte: 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+« Hey mein Freund, auch wenn du dich in einen voll gefüllten Sack verwandeln solltest, werde ich nicht in deine Nähe kommen. »
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*Diese Fabel zeigt, dass vernünftige Menschen sich nicht mehr von vorgegebenen Gesichtern täuschen lassen, wenn sie den schlechten Charakter bestimmter Menschen durchschaut haben. 
