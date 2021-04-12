@@ -1,14 +1,14 @@
-# КІТ ТА МИШІ
+# LE CHAT ET LES RATS
 
-Дім кишить мишами. 
+Une maison était infestée de rats. 
 
-Кіт, побачивши їх, підійшов, і, наздоганяючи їх один за одним, їв.
+Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
+Але миші, помітивши, що їх постійно ловлять, забирались в свої нори. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Не маючи змоги дістатись до них, кіт подумав, що потрібно вигадати якусь хитрість, щоб їх вивести. 
 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
+Він піднявся на дерев'яний виступ і, висячи на ньому, прикинувся мертвим. 
 
 Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
