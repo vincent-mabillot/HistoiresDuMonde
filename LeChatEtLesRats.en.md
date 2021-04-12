@@ -1,8 +1,8 @@
-# THE CAT AND THE RATS
+# THE CAT AND THE RAT
 
-Une maison était infestée de rats. 
+A house was infested with rats. 
 
-Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
+Having learnt of this, a cat went there, and catching them one by one, ate them.
 
 Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
