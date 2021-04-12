@@ -1,18 +1,18 @@
-# КОШКА И МЫШКИ
+# LE CHAT ET LES RATS
 
-Дом был полон мышками. 
+Une maison était infestée de rats. 
 
-Кошка, узнав об этом, подбежала к ним и, ловя их одну за другой, съела.
+Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Однако мышки, видя, что их все-таки поймали, спрятались в свои норки. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-Не в силах больше поймать их, кошка подумала, что надо придумать какую-нибудь хитрость, чтобы выманить их оттуда. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-Она взобралась на деревянный выступ и, повиснув на нем, притворилась мертвой. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Но одна из мышек высунула голову, чтобы посмотреть, заметила её и сказала: 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+" Эй, подруга, когда ты будешь в мешке, я к тебе не приближусь. "
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+Эта басня показывает, что здравомыслящие люди, когда испытывали подлость некоторых людей, уже не позволяют себе обманывать себя своими выходками. 
