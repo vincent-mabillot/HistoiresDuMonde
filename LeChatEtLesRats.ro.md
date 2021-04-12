@@ -4,11 +4,11 @@ Une maison était infestée de rats.
 
 Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
+Văzând că ei sunt prinși în capcană, șoareci ei au început să se înfunde în găurile lor. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Motanul a început să-și piardă răbdarea și că ar fi bine să gândească o șmecherie ca să le facă să iasă din găurile lor. 
 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
+El se urca pe o margine de lemne, și spânzurându-se, el făcu pe mortul. 
 
 Dar unul dintre șobolani își scoate capul să se uite, l-a văzut și a spus : 
 
