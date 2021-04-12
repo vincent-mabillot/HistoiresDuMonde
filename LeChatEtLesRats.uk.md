@@ -4,15 +4,15 @@ Une maison était infestée de rats.
 
 Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Але миші, помітивши, що їх постійно ловлять, забирались в свої нори. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-Не маючи змоги дістатись до них, кіт подумав, що потрібно вигадати якусь хитрість, щоб їх вивести. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-Він піднявся на дерев'яний виступ і, висячи на ньому, прикинувся мертвим. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+Але одна із мишей, що висунула голову, щоб подивитися, побачила це і сказала: 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+"Гей! друже, коли ти на волі, я не підійду до тебе. "
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+* Ця байка показує, що розсудливі люди, переживаючи нечестивість певних людей, більше не дозволяють обманювати себе. 
