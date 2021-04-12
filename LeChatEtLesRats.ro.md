@@ -4,15 +4,15 @@ Une maison était infestée de rats.
 
 Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Văzând că ei sunt prinși în capcană, șoareci ei au început să se înfunde în găurile lor. 
+Văzând că ei sunt prinși în capcană, șoarecii au început să se înfunde în găurile lor. 
 
-Motanul a început să-și piardă răbdarea și că ar fi bine să gândească o șmecherie ca să le facă să iasă din găurile lor. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-El se urca pe o margine de lemne, și spânzurându-se, el făcu pe mortul. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Dar unul dintre șobolani își scoate capul să se uite, l-a văzut și a spus : 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-Hei ! prietene, când vei fi demis, nu mă voi apropia de tine.
+« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
 
 
-Această fabulă arată că oamenii sensibili, când au experimentat răutatea anumitor oameni, nu se mai lasă înșelați de grimase. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
