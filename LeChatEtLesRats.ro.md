@@ -1,4 +1,4 @@
-# MOTANUL ȘI ȘOARECII
+# LE CHAT ET LES RATS
 
 Une maison était infestée de rats. 
 
@@ -12,7 +12,7 @@ Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort.
 
 Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+« Hei ! prietene, când vei fi demis, nu mă voi apropia de tine. »
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*Această fabulă arată că oamenii sensibili, când au experimentat răutatea anumitor oameni, nu se mai lasă înșelați de grimase. 
