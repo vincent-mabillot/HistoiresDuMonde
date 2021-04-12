@@ -1,18 +1,18 @@
-Il gatto e i ratti
+# LE CHAT ET LES RATS
 
-Una casa era infestata dai ratti. 
+Une maison était infestée de rats. 
 
-Un gatto, avendolo saputo, vi si recò e, catturandoli uno dopo l'altro, li mangiava.
+Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-O i ratti, vedendo che venivano catturati, si nascondevano nelle loro tane. 
+I ratti, vedendo che venivano catturati, si nascondevano nelle loro tane. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Non potendo più aspettarli, il gatto pensò che bisognasse immaginare qualche espediente per farli uscire. 
 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
+Si arrampicò su una sporgenza di legno e, rimanendo appeso, si finse morto. 
 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+Ma uno dei ratti sporse la testa per guardare, lo vide e disse: 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+"Ehi! Amico, quando sarai un sacco, non mi avvicinerò."
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*Questa favola mostra che gli uomini giudiziosi, quando vedono la cattiveria di alcune persone, non si lasciano più ingannare dalle loro smorfie. 
