@@ -4,9 +4,9 @@ Une maison était infestée de rats.
 
 Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Văzând că ei sunt prinși în capcană, șoarecii au început să se înfunde în găurile lor. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Motanul a început să-și piardă răbdarea și s-a gandit că ar fi bine să gândească o șmecherie ca să-i facă să iasă din găurile lor. 
 
 Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
