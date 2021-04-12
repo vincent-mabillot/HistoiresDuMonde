@@ -1,12 +1,12 @@
-# THE CAT AND THE RAT
+# LE CHAT ET LES RATS
 
-A house was infested with rats. 
+Une maison était infestée de rats. 
 
-Having learnt of this, a cat went there, and catching them one by one, ate them.
+A cat having learnt of this went there and, catching them one by one, ate them.
 
-Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
+But the rats, seeing themselves getting caught, retreated back into their holes. 
 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
+Since he could no longer reach them, the cat thought he had to think of some trick to get them out. 
 
 Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
