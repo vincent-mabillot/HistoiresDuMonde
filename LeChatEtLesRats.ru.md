@@ -1,11 +1,18 @@
-# LE CHAT ET LES RATS
+# КОШКА И МЫШКИ
 
-Une maison était infestée de rats. Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait. 
-Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
-Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+Дом был полон мышками. 
+
+Кошка, узнав об этом, подбежала к ним и, ловя их одну за другой, съела.
+
+Однако мышки, видя, что их все-таки поймали, спрятались в свои норки. 
+
+Не в силах больше поймать их, кошка подумала, что надо придумать какую-нибудь хитрость, чтобы выманить их оттуда. 
+
+Она взобралась на деревянный выступ и, повиснув на нем, притворилась мертвой. 
+
+Но одна из мышек высунула голову, чтобы посмотреть, заметила её и сказала: 
+
 « Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
 
-Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
