@@ -1,18 +1,18 @@
 # LE CHAT ET LES RATS
 
-Había una casa invadida de ratas. 
+Une maison était infestée de rats. 
 
-Lo supo un gato y se fue a ella, y poco a poco iba devorando las ratas.
+Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Pero ellas, viendo que rápidamente eran cazadas, decidieron guardarse en sus agujeros. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-No pudiendo el gato alcanzarlas, ideó una trampa para que salieran. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-Se subió a una cornisa de madera y, colgado de ella, se hizo el muerto. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Pero una de las ratas se asomó, lo vio y le dijo: 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-"¡Oye, amiguito, aunque fueras un saco de harina, no me acercaría a ti!"
+« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*Esta fábula muestra que los hombres sensatos, cuando han experimentado la maldad de ciertas personas, ya no se dejan engañar por sus rostros. 
