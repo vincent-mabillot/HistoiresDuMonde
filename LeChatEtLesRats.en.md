@@ -1,4 +1,4 @@
-# THE CAT AND THE RATS
+# THE CAT AND THE RAT
 
 Une maison était infestée de rats. 
 
