@@ -1,18 +1,18 @@
 # LE CHAT ET LES RATS
 
-Une maison était infestée de rats. 
+There once was a house that was infested with rats. 
 
-A cat having learnt of this went there and, catching them one by one, ate them.
+Having learnt of this, a cat went over and caught them one by one.
 
-But the rats, seeing themselves getting caught, retreated back into their holes. 
+Seeing their friends getting caught, the other rats retreated back into their holes. 
 
-Since he could no longer reach them, the cat thought he had to think of some trick to get them out. 
+Since he could no longer reach them, the cat knew he had to think of a trick to get them out. 
 
-Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
+He climbed up to a wooden board and played dead. 
 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+One of the rats stuck out his head to see. Seeing him, it said: 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+"Hey my friend. Even if you were a bag, I wouldn't go near you."
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*This fable shows that once a sensible man has experienced the wickedness of certain people, they won't fall for their tricks again. 
