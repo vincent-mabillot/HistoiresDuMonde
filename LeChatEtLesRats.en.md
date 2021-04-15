@@ -1,4 +1,4 @@
-THE CAT AND THE RAT
+# LE CHAT ET LES RATS
 
 Une maison était infestée de rats. 
 
@@ -10,7 +10,7 @@ Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ru
 
 Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
+One of the rats stuck out his head to see what was going on. Seeing the cat, it said: 
 
 « Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
 
