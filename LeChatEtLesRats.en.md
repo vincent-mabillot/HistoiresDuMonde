@@ -1,4 +1,4 @@
-# THE CAT AND THE RAT
+# LE CHAT ET LES RATS
 
 Une maison était infestée de rats. 
 
@@ -15,4 +15,4 @@ Mais un des rats sortant la tête pour regarder, l’aperçut et dit :
 « Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
 
 
-*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
+*This fable shows that once a sensible man has experienced the wickedness of certain people, he won't fall for their tricks again. 
