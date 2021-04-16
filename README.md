@@ -1,6 +1,10 @@
 # HistoiresDuMonde
 
+## Français
+
 Projet didactique de traduction collaborative de contes et légendes du monde pour apprendre à travailler avec la plate-forme (Weblate)[https://weblate.org] 
+
+## English
 
 Tous les fichiers originaux du projet sont produits sous licence GPL. Les fichiers complémentaires ajoutés pour illustrer le projet ou servir d'exemple, sont sous leur licence d'origine compatible avec la GPL du projet.
 
