@@ -2,17 +2,17 @@
 
 Une maison était infestée de rats. 
 
-Als eine Katze dies hörte, ging sie dorthin und fing eine nach der anderen, und fraß sie.
+Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-Aber nun versteckten sich die verbliebenen Ratten in ihren Löchern. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-Da sie diese nicht mehr erreichen konnte, überlegte sich die Katze einen Trick, um sie herauszuholen. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-Sie kletterte auf einen Holzvorsprung und stellte sich tot. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Aber eine der Ratten steckte den Kopf heraus, um zu schauen, sah die Katze und sagte: 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-« Hey mein Freund, auch wenn du dich in einen voll gefüllten Sack verwandeln solltest, werde ich nicht in deine Nähe kommen. »
+„Hey mein Freund, auch wenn du dich in einen voll gefüllten Sack verwandeln solltest, werde ich nicht in deine Nähe kommen.“
 
 
-*Diese Fabel zeigt, dass vernünftige Menschen sich nicht mehr von vorgegebenen Gesichtern täuschen lassen, wenn sie den schlechten Charakter bestimmter Menschen durchschaut haben. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
