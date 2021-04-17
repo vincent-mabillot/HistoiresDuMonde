@@ -10,9 +10,9 @@ Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ru
 
 Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Але одна із мишей, що висунула голову, щоб подивитися, побачила це і сказала: 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-"Гей! друже, коли ти на волі, я не підійду до тебе. "
+«Гей! друже, коли ти на волі, я не підійду до тебе.»
 
 
-* Ця байка показує, що розсудливі люди, переживаючи нечестивість певних людей, більше не дозволяють обманювати себе. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
