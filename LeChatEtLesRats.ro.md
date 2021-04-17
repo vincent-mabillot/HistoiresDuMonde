@@ -12,7 +12,7 @@ Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort.
 
 Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-« Hei ! prietene, când vei fi demis, nu mă voi apropia de tine. »
+„Hei! prietene, când vei fi demis, nu mă voi apropia de tine.”
 
 
-*Această fabulă arată că oamenii sensibili, când au experimentat răutatea anumitor oameni, nu se mai lasă înșelați de grimase. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
