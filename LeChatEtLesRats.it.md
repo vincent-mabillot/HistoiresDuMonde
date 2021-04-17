@@ -4,15 +4,15 @@ Une maison était infestée de rats.
 
 Un chat, l’ayant su, s’y rendit, et, les attrapant l’un après l’autre, il les mangeait.
 
-I ratti, vedendo che venivano catturati, si nascondevano nelle loro tane. 
+Or les rats, se voyant toujours pris, s’enfonçaient dans leurs trous. 
 
-Non potendo più aspettarli, il gatto pensò che bisognasse immaginare qualche espediente per farli uscire. 
+Ne pouvant plus les atteindre, le chat pensa qu’il fallait imaginer quelque ruse pour les en faire sortir. 
 
-Si arrampicò su una sporgenza di legno e, rimanendo appeso, si finse morto. 
+Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort. 
 
-Ma uno dei ratti sporse la testa per guardare, lo vide e disse: 
+Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-"Ehi! Amico, quando sarai un sacco, non mi avvicinerò."
+«Ehi! Amico, quando sarai un sacco, non mi avvicinerò.»
 
 
-*Questa favola mostra che gli uomini giudiziosi, quando vedono la cattiveria di alcune persone, non si lasciano più ingannare dalle loro smorfie. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
