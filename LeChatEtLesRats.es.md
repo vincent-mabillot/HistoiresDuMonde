@@ -12,7 +12,7 @@ Il grimpa à un rebord de bois et, s’y étant suspendu, il fit le mort.
 
 Mais un des rats sortant la tête pour regarder, l’aperçut et dit : 
 
-« Hé ! l’ami, quand tu serais sac, je ne t’approcherais pas. »
+«¡Oye, amiguito, aunque fueras un saco de harina, no me acercaría a ti!»
 
 
-*Esta fábula muestra que los hombres sensatos, cuando han experimentado la maldad de ciertas personas, ya no se dejan engañar por sus rostros. 
+*Cette fable montre que les hommes sensés, quand ils ont éprouvé la méchanceté de certaines gens, ne se laissent plus tromper à leurs grimaces. 
